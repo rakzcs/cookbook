@@ -15,7 +15,7 @@
 - 1/8 tsp white pepper
 
 ## To Finish
-- Chili garlic sauce or chili oil, for topping (see [homemade recipe here](https://thefoodietakesflight.com/how-to-make-homemade-chili-oil/))
+- Chili garlic sauce or chili oil, for topping
 - More chopped green onion or scallion
 - Doubanjiang or chili broad bean paste
 - More soy sauce or chinkiang vinegar
