@@ -27,4 +27,3 @@
 2. In the same pan, sauté the onion, celery, and carrot for 5-10 minutes. Add garlic and cook for a few more minutes. Add the wine and cook until mostly evaporated. Add the thyme and bay leaves, then stir in the tomato paste.
 3. Add the meats back into the pan, top with the stock, add the milk and Parmesan rind. Cover and place into a 140°C oven for 3-4 hours until reduced and thickened. The flavors will be rich and delicious. Check every hour and top up with stock if needed.
 4. Serve with fresh pasta for a delicious meal.
-

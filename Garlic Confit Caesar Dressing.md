@@ -21,5 +21,3 @@ A rich and flavorful Caesar dressing with a garlic confit base. [Recipe Source](
 2. **Blend Dressing:** Transfer to a jar with lemon juice, Parmesan, Worcestershire, and egg yolk. Purée until thick.
 3. **Season:** Adjust with salt and pepper.
 4. **Serve or Store:** Use immediately or refrigerate for up to 5 days.
-
-This garlic confit Caesar dressing adds a deep, savory flavor to any salad, making it a gourmet addition to your meals.

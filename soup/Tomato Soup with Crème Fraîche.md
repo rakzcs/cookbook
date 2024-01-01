@@ -1,6 +1,6 @@
 # Tomato Soup with Crème Fraîche
 
-A delightful soup that's perfect for saying goodbye to summer tomatoes.
+A delightful soup that's perfect for saying goodbye to summer tomatoes. [Recipe Source](https://www.instagram.com/p/CxvSdvwu3RO/)
 
 ## Ingredients
 
@@ -27,5 +27,3 @@ A delightful soup that's perfect for saying goodbye to summer tomatoes.
 5. When the tomatoes are nearly cooked down, remove the herbs and add a pinch of sugar. Blend the mixture.
 6. Add the remaining vegetable stock, taste for seasoning, and stir in crème fraîche.
 7. Serve with a drizzle of olive oil, fresh cracked pepper, and fresh basil.
-
-Enjoy this rich and comforting soup! [Recipe Source](https://www.instagram.com/p/CxvSdvwu3RO/)

@@ -38,5 +38,3 @@ A hearty and flavorful soup, perfect for a comforting meal. [Recipe Source](http
 4. Bring to a boil, add cubed potatoes. Simmer until potatoes are tender, about 20-25 minutes.
 5. Add sausage back, and if desired, stir in cheese.
 6. Garnish with red pepper flakes and parsley. Serve!
-
-Enjoy this delicious and warming soup, perfect for a cozy meal!

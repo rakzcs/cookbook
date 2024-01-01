@@ -1,5 +1,7 @@
 # Coconut Dhal with Poached Eggs
 
+*Recipe Reference*: [Instagram Post](https://www.instagram.com/p/CtBP3mzAykI/)
+
 **Prep time**: 5 minutes
 **Cook time**: 35 minutes
 **Serves**: 4
@@ -33,7 +35,3 @@
 6. **Poach Eggs**: Crack the 4 eggs into the simmering dhal. Cover and cook on low heat for 6-7 minutes, or until the eggs are cooked to your liking.
 
 7. **Finish with Coconut Milk and Coriander**: Finish the dhal with the remaining coconut milk and sprinkle with the roughly chopped coriander leaves.
-
-Enjoy your delicious Coconut Dhal with Poached Eggs!
-
-*Recipe Reference*: [Instagram Post](https://www.instagram.com/p/CtBP3mzAykI/)

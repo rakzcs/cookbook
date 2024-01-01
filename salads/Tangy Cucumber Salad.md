@@ -1,5 +1,7 @@
 # Tangy Cucumber Salad
 
+*Instagram Recipe Link*: [Instagram Post](https://www.instagram.com/p/CtkSL1RsQYd/)
+
 ## Ingredients:
 - 2 hot house or seedless cucumbers, about 1 1/2 pounds
 - Salt
@@ -19,7 +21,3 @@
 4. Whisk sugar, vinegar, mustard, add onions: In a separate bowl, whisk together the sugar, vinegar, and Dijon mustard until the sugar has completely dissolved. Stir in the finely sliced red onions.
 
 5. Combine cucumbers with dressing, chill: Gently fold the cucumbers into the dressing. Chill until ready to serve. Serve lightly chilled or at room temperature.
-
-Enjoy your Tangy Cucumber Salad!
-
-*Instagram Recipe Link*: [Instagram Post](https://www.instagram.com/p/CtkSL1RsQYd/)

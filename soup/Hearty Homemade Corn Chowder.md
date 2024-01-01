@@ -27,5 +27,3 @@ A rich and flavorful corn chowder, perfect for a comforting meal. [Recipe Source
 5. **Blend Soup:** Use an immersion blender to blend half the soup. Alternatively, blend 3 cups of soup and return to the pot.
 6. **Finish Soup:** Add half and half, reserved corn juice, and chives. Heat through.
 7. **Serve:** Garnish with remaining chives and bacon.
-
-Enjoy this hearty and delicious corn chowder, perfect for any day.

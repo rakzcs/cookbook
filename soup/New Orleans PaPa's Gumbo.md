@@ -28,5 +28,3 @@ A traditional and flavorful gumbo recipe straight from New Orleans. [Recipe Sour
 3. **Add Parsley and Okra:** Followed by stock, crabs, oyster liquor, and seasoning. Simmer for 2 hours.
 4. **Add Seafood:** Shrimp first, then oysters near the end.
 5. **Serve:** Over rice, ensuring oysters are curled at the edges.
-
-Enjoy this authentic and rich New Orleans-style gumbo, perfect for a comforting meal.

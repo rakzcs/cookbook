@@ -1,5 +1,7 @@
 # Feta Spring Flatbreads
 
+*Recipe Source*: [Samsung Food](https://app.samsungfood.com/recipes/1016a09d9bb6f965acce6bb048cb653b3ac8903c748)
+
 ## Ingredients
 
 - 200g self-raising flour
@@ -28,7 +30,3 @@
 6. **Prepare the Mint Sauce**: Meanwhile, combine your mint sauce and olive oil in a small bowl ready to serve.
 
 7. **Serve**: Serve the flatbreads while they're warm or once they've cooled down with your mint sauce. Enjoy!
-
-These Feta Spring Flatbreads make a delicious and flavorful snack or meal.
-
-*Recipe Source*: [Samsung Food](https://app.samsungfood.com/recipes/1016a09d9bb6f965acce6bb048cb653b3ac8903c748)

@@ -23,5 +23,3 @@ A simple and delicious orzo dish with a rich tomato and garlic flavor. [Recipe a
 4. **Add Water and Coconut Milk:** Pour in water, cook until thickened. Add coconut milk, cook on low heat.
 5. **Cover and Cook:** Cover, cook for 3 minutes, stirring often.
 6. **Finish:** Add parmigiano reggiano and basil, mix well.
-
-Serve with additional parmigiano reggiano, chili flakes, and microgreens.

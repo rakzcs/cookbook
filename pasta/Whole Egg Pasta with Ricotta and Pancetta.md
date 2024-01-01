@@ -1,5 +1,7 @@
 # Whole Egg Pasta with Ricotta and Pancetta
 
+*Recipe inspired from [Instagram](https://www.instagram.com/p/Cr5VokIudLx/)*
+
 ## Ingredients
 
 ### For The Whole Egg Pasta
@@ -33,7 +35,7 @@ Toast peppercorns, then crush. Mix with ricotta and grated pecorino, season, and
 Roll pasta dough thinly, cut into 10x10 cm squares, and cover with a damp towel.
 
 ### Step 4
-Pipe ricotta on a pasta square, add an egg yolk, and seal with another pasta square. Press edges to seal.
+Pipe ricotta on a pasta square, add an egg yolk, salt, pepper, and seal with another pasta square. Press edges to seal.
 
 ### Step 5
 Trim ravioli into desired shapes and place on a semolina-lined tray.
@@ -43,5 +45,3 @@ Boil ravioli. Cook pancetta until crisp. Make a sauce with pancetta fat, butter,
 
 ### Step 7
 Serve ravioli with pancetta, pecorino, and black pepper.
-
-*Recipe inspired from [Instagram](https://www.instagram.com/p/Cr5VokIudLx/)*

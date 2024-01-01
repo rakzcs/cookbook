@@ -28,5 +28,3 @@ A simple and nutritious salad with roasted veggies and a flavorful dressing. [Re
 2. **Prepare Dressing:** Stir together balsamic vinegar, maple syrup, olive oil, garlic, chilli flakes, lemon juice, salt, and pepper.
 3. **Massage Greens:** Use extra olive oil and lemon to massage into the greens.
 4. **Combine:** Toss the roasted veggies, croutons, and greens with the dressing. Drizzle with tahini if desired.
-
-Enjoy this easy and delicious salad, perfect for a quick yet satisfying meal.

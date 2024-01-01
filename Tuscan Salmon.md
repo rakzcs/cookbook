@@ -22,5 +22,3 @@ A quick and delicious Tuscan Salmon recipe, perfect for a flavorful meal. [Recip
 4. **Make Sauce:** Once spinach wilts, add cream, spices, and Parmesan. Simmer for 3-4 minutes.
 5. **Combine:** Return salmon to the skillet. Simmer for another 3-4 minutes.
 6. **Serve:** Ready to serve with pasta, rice, or roasted potatoes.
-
-Enjoy this creamy and savory Tuscan Salmon dish, a delightful meal ready in less than 15 minutes.

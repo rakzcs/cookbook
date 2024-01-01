@@ -55,5 +55,3 @@ A hearty and spicy soup featuring chicken, broccoli, and cheddar cheese. [Recipe
 ### Finish the Soup:
 1. Gradually add cheese to soup, whisking until smooth.
 2. Serve with broccoli garnish, extra pepper jack cheese, and parsley.
-
-Enjoy this delicious and spicy take on the classic broccoli cheddar soup!

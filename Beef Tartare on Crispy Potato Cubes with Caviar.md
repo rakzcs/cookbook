@@ -33,5 +33,3 @@ An exquisite dish combining tender beef tartare and crispy potato cubes, topped 
 2. **Prepare Potatoes:** Mix sliced potatoes with duck fat, salt, and pepper. Layer on a tray and bake at 115°C for 3 hours. Compress overnight in the fridge.
 3. **Fry Potatoes:** Cut into cubes and fry in vegetable oil at 160°C until golden.
 4. **Assemble:** Top potato cubes with beef tartare and a dollop of caviar.
-
-Enjoy this sophisticated and flavorful dish that combines the softness of tartare with the crunch of potatoes, enhanced by the umami of caviar.

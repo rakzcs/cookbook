@@ -24,5 +24,3 @@ A delicious and easy-to-make Salmon Nori Wrap, perfect for a quick and healthy m
 6. **Add Avocado:** Place avocado slices on the last square. Sprinkle with furikake.
 7. **Fold Nori:** Start folding from the rice corner, then to the right, and down to form a square wrap.
 8. **Repeat:** Make another wrap with the remaining ingredients.
-
-Enjoy this flavorful and unique Salmon Nori Wrap, a perfect blend of spicy salmon and fresh vegetables.

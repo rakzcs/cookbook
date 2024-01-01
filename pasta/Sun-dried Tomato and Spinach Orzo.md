@@ -1,6 +1,6 @@
 # One Pot Creamy Sun-dried Tomato and Spinach Orzo
 
-A delicious and easy one-pot vegetarian meal.
+A delicious and easy one-pot vegetarian meal. [Recipe Source - Instagram Post](https://www.instagram.com/p/CvsMVowq-bC/)
 
 ## Ingredients
 
@@ -28,5 +28,3 @@ A delicious and easy one-pot vegetarian meal.
 4. Add spinach and cover to let it wilt.
 5. Serve with creamy coconut yogurt and dressing made from olive oil, sun-dried tomato paste, thyme, and parsley.
 6. Top with toasted walnuts.
-
-[Recipe Source - Instagram Post](https://www.instagram.com/p/CvsMVowq-bC/)

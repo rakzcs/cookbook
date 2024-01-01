@@ -1,5 +1,7 @@
 # Spaghetti Puttanesca
 
+*[Source: Instagram Post](https://www.instagram.com/p/CuaCjyrrt61/)*
+
 ## Ingredients
 - 2 tbsp Capers
 - 1 Bunch Parsley
@@ -29,8 +31,3 @@
 
 ### Step 6
 - Drain the pasta and pour it into the saucepan with the puttanesca sauce. Mix everything together and remove from the heat. Serve with some parsley leaves scattered on top and a good glug of olive oil.
-
-## Notes
-- Enjoy this classic Italian dish, with a rich and flavorful sauce complementing the spaghetti.
-
-*[Source: Instagram Post](https://www.instagram.com/p/CuaCjyrrt61/)*

@@ -1,5 +1,7 @@
 # American Pancakes
 
+*Recipe Source*: [Instagram Post](https://www.instagram.com/p/CsgkpjoKY8J/)
+
 ## Dough
 
 ### Ingredients:
@@ -17,7 +19,3 @@
 4. Heat a pan and lightly grease it.
 5. Pour the dough into the pan in portions to form small pancakes.
 6. Cook until golden brown on both sides.
-
-Enjoy your delicious American Pancakes!
-
-*Recipe Source*: [Instagram Post](https://www.instagram.com/p/CsgkpjoKY8J/)

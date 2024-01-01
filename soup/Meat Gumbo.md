@@ -21,5 +21,3 @@ A hearty and flavorsome gumbo with chicken and andouille sausage. [Recipe Source
 4. **Combine:** Add bone broth, then meat. Simmer, then add chicken stock.
 5. **Season and Simmer:** Add Better Than Bouillon, adjust seasoning. Simmer and skim off grease.
 6. **Serve:** Enjoy this meaty gumbo over rice.
-
-This gumbo focuses on the deep flavors from browning the meats and making a rich roux, creating a comforting and savory dish.

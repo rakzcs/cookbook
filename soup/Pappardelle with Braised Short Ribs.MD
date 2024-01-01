@@ -30,5 +30,3 @@ A luxurious pasta dish featuring tender, braised short ribs in a rich sauce. [Re
 6. **Shred Meat:** Remove ribs, shred meat, discard bones and fat.
 7. **Combine:** Mix pasta with ragu, adjust consistency with pasta water.
 8. **Serve:** With grated Parmigiano Reggiano.
-
-Enjoy this hearty dish with tender meat and flavorful sauce, perfect for a special occasion.

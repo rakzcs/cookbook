@@ -1,6 +1,6 @@
 # Spaghetti alla Puttanesca
 
-A classic Italian dish with a bold and flavorful sauce.
+A classic Italian dish with a bold and flavorful sauce. [Recipe Source](https://www.instagram.com/p/CwxDhhWLcvn/)
 
 ## Ingredients
 
@@ -23,5 +23,3 @@ A classic Italian dish with a bold and flavorful sauce.
 4. Add the peeled tomatoes to the pan. Season with salt and let the sauce simmer.
 5. Once the spaghetti is cooked, drain and add it to the sauce. Mix well to coat the pasta.
 6. Garnish with chopped parsley before serving.
-
-Enjoy this flavorful and aromatic Italian classic! [Recipe Source](https://www.instagram.com/p/CwxDhhWLcvn/)

@@ -23,5 +23,3 @@ A classic Chicken Piccata recipe, featuring chicken in a lemony, buttery, and ca
 3. **Make Sauce:** Sauté garlic, then add wine and reduce. Incorporate capers, lemon juice, zest, salt, and pepper.
 4. **Combine:** Add remaining butter, return chicken to the pan, and simmer together.
 5. **Serve:** Enjoy the chicken piccata garnished with fresh parsley.
-
-This Chicken Piccata brings together tender chicken and a zesty, flavorful sauce for a delightful meal.

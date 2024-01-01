@@ -30,5 +30,3 @@ A rich and aromatic spread made with roasted garlic, lemon, olives, and nuts. [R
 3. **Blend Mixture:** Once cooled, blend the baked and roasted ingredients with soaked nuts, water, white wine, olive oil, pepper, sweetener, chili flakes, and lemon marmalade until desired consistency.
 4. **Add Final Touches:** Stir in chopped coriander, lemon juice, and salt. Adjust seasoning.
 5. **Chill:** The spread will thicken slightly as it chills.
-
-Enjoy this unique and flavorful spread with bread, crackers, or as a condiment.

@@ -38,5 +38,3 @@ A delicious soup inspired by enchiladas, perfect for a cozy meal. [Recipe Source
 4. **Cook Chicken:** Add chicken breast to the soup and cook until done. Then shred and return to soup.
 5. **Add Cheese:** On low heat, stir in softened cream cheese until combined, then add shredded cheese until melted.
 6. **Serve:** Add additional seasonings if needed and enjoy!
-
-This recipe is perfect for a warm, hearty meal that brings the essence of enchiladas to a comforting soup.

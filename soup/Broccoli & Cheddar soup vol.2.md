@@ -23,5 +23,3 @@ A creamy and comforting broccoli cheddar soup, perfect for a cozy meal. [Recipe 
 2. **Make Roux:** Add flour and whisk until golden. Pour in stock, broccoli, carrots, and seasonings. Bring to a boil, then simmer until vegetables are cooked.
 3. **Add Dairy and Cheese:** Stir in half & half and cheddar cheese. Simmer for a minute. Adjust seasoning.
 4. **Serve:** Enjoy with toasted bread or in a bread bowl.
-
-This hearty soup is a perfect blend of cheesy goodness and nutritious vegetables, ideal for a satisfying meal.

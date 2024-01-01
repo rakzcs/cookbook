@@ -38,5 +38,3 @@ A delicious combination of chili and macaroni and cheese. [Instagram Inspiration
 2. **Make Mac and Cheese:** Prepare macaroni, make cheese sauce with butter, flour, cream, milk, and seasonings. Combine with cooked macaroni.
 3. **Combine:** Mix chili with macaroni, top with cheese, and bake at 400°F for 5 minutes.
 4. **Serve:** Garnish with parsley.
-
-Enjoy this comforting and hearty dish that's perfect for any meal.

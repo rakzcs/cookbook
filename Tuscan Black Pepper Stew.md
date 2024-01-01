@@ -17,5 +17,3 @@ A robust and flavorful beef stew with a distinct Tuscan influence. [Recipe Sourc
 2. **Brown Beef:** In a large pot, heat olive oil and brown the beef chunks. Add smashed garlic.
 3. **Add Wine and Pepper:** Pour in the entire bottle of wine. Add black pepper.
 4. **Slow Cook:** Simmer on low heat until the beef is tender and the sauce has thickened.
-
-Enjoy this hearty Tuscan stew, perfect for a warming and satisfying meal.

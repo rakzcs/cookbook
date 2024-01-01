@@ -25,5 +25,3 @@ A wholesome and delicious soup with a creamy texture. [Recipe Source](https://ww
 4. For cashew cream, blend soaked cashews with 120 ml water until smooth.
 5. Add 240 ml of soup to the blender with the cashew cream, blend until smooth.
 6. Stir the blended mixture back into the pot. Season with lemon juice, salt, and pepper.
-
-Serve this comforting soup and enjoy a healthy, creamy meal!

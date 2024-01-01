@@ -30,5 +30,3 @@ A hearty and flavorful beef stew, perfect with fresh baked bread. [Recipe Source
 4. **Simmer Stew:** Add meat, onions, broth, Worcestershire sauce, herbs, and bay leaves. Cook for 1.5 hours.
 5. **Add Vegetables:** Include carrots and potatoes, cook until tender. Add peas before serving.
 6. **Garnish:** Season and top with parsley.
-
-Enjoy this rich and savory beef stew, enhanced with a complex blend of flavors and perfect with a slice of fresh bread.

@@ -26,5 +26,3 @@ A creamy and flavorful soup combining white beans, orzo, and a lemon pesto twist
 3. **Add Beans and Kale:** Stir in beans, kale, and season. Simmer until orzo is al dente.
 4. **Final Touches:** Mix in pesto, milk, Parmesan, and lemon.
 5. **Serve:** Enjoy the soup with extra Parmesan, black pepper, and fresh herbs.
-
-Enjoy this comforting and hearty soup, perfect for a cozy meal.

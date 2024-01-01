@@ -29,5 +29,3 @@ A fresh and vibrant salad with a creamy cilantro lime dressing. [Recipe Source](
 1. **Prepare the Salad Ingredients:** Combine kale, cubed mango, avocado, diced cucumber, steamed corn, red onion, and bell pepper in a large salad bowl.
 2. **Make the Dressing:** In a blender, blend cilantro, lime juice, avocado oil, water, cashews, salt, and garlic until smooth and creamy.
 3. **Combine:** Toss the salad with the creamy cilantro lime dressing.
-
-Enjoy this delightful mango salad, perfect for a nutritious and flavorful meal.

@@ -30,5 +30,3 @@ A comforting and hearty soup, perfect for any season. [Recipe Source](https://ww
 5. **Add Chicken and Spinach:** Add frozen spinach and shredded chicken.
 6. **Cook Gnocchi:** Bring the soup to a boil and add gnocchi. Boil for 4-5 minutes.
 7. **Serve:** Enjoy the soup hot, ideally with breadsticks.
-
-This Chicken Gnocchi Soup is a delightful and easy-to-make dish, perfect for a cozy meal.

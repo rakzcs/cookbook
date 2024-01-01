@@ -27,5 +27,3 @@ A creamy and cheesy broccoli soup, perfect for a comforting meal. [Recipe Source
 6. **Season:** Add mustard powder, paprika, salt, and pepper.
 7. **Add Cheese:** Fold in the cheddar until melted.
 8. **Finish:** Remove from heat once cheese is incorporated.
-
-Enjoy this hearty and flavorful soup as a satisfying meal.

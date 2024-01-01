@@ -19,5 +19,3 @@ Crispy and flavorful roast potatoes, perfect for a comforting meal. [Recipe Sour
 4. **Roast Potatoes:** Add potatoes, coat in fat, and roast for 1 hour 30 minutes, turning every 20 minutes.
 5. **Add Herbs:** In the last 5 minutes, add garlic, rosemary, and thyme.
 6. **Serve:** Drain on kitchen paper, season with sea salt.
-
-Enjoy these roast potatoes with their perfect combination of a crispy exterior and fluffy interior.

@@ -18,5 +18,3 @@ Links: [Reddit Post](https://www.reddit.com/r/FoodPorn/comments/vlhabh/homemade_
 4. Add the shredded mozzarella cheese and stir frequently. Be careful not to burn the sauce.
 5. Turn off the heat and remove the saucepan from the stove. The sauce will continue to thicken as it sits. Taste and add garlic powder or salt if needed.
 6. Note: If you end up using too much mozzarella and the sauce becomes stringy, you can use pasta water as needed to thin out the sauce.
-
-Enjoy your creamy fettuccine Alfredo!

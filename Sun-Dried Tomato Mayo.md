@@ -1,5 +1,7 @@
 # Sun-Dried Tomato Mayo
 
+*Recipe Reference*: [Instagram Post](https://www.instagram.com/p/CsMVRscg1Tm/)
+
 ## Ingredients
 
 - 1 (10-ounce) jar sun-dried tomatoes in oil
@@ -21,7 +23,3 @@
 4. **Season**: Season the Sun-Dried Tomato Mayo with kosher salt and freshly ground black pepper to taste.
 
 5. **Store**: Transfer the Sun-Dried Tomato Mayo to an airtight container. It can be stored in the refrigerator for up to 1 week.
-
-Enjoy your homemade Sun-Dried Tomato Mayo! Use it to elevate your sandwiches or as a versatile condiment for various dishes.
-
-*Recipe Reference*: [Instagram Post](https://www.instagram.com/p/CsMVRscg1Tm/)

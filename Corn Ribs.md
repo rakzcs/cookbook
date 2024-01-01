@@ -21,8 +21,3 @@
 3. **Prepare the Dip**: Mix the sour cream with the zest and juice of one lime, chopped coriander, and salt to taste to make the dip.
 4. **Fry the Corn**: Heat the oil to 175°C (350°F). Fry the corn ribs for 4 minutes.
 5. **Season and Serve**: Immediately toss the fried corn ribs through the spice mix and serve them with the prepared dip.
-
-## Notes
-
-- Adjust the spice mix and dip according to your taste preferences.
-- Ensure the corn is fried to a perfect crisp for the best texture.

@@ -1,6 +1,6 @@
 # Tomato Basil Parmesan Soup
 
-A creamy and comforting soup with a rich tomato and basil flavor.
+A creamy and comforting soup with a rich tomato and basil flavor. [Recipe Source](https://carlsbadcravings.com/tomato-basil-parmesan-soup/)
 
 ## Ingredients
 
@@ -33,5 +33,3 @@ A creamy and comforting soup with a rich tomato and basil flavor.
 4. Gradually whisk in chicken broth, then add tomatoes and seasonings, including bay leaf. Bring to a boil, then simmer for 15 minutes.
 5. Add Parmesan cheese and blend. Stir in milk or cream and simmer for an additional 15-20 minutes. Adjust consistency with broth or cream if needed. Remove bay leaf.
 6. Optionally, puree the soup for a smoother texture. Garnish with Parmesan cheese.
-
-Enjoy this rich and flavorful soup! [Recipe Source](https://carlsbadcravings.com/tomato-basil-parmesan-soup/)

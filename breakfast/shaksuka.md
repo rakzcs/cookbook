@@ -28,5 +28,3 @@ A traditional Shakshuka recipe featuring eggs poached in a spicy tomato sauce.
 4. **Poach Eggs:** Make wells in the sauce and crack eggs into them. Season with salt and pepper.
 5. **Garnish:** Top with feta, cilantro, and additional red pepper flakes.
 6. **Serve:** Enjoy with crusty bread or pita.
-
-This Shakshuka is a flavorful and hearty dish, perfect for breakfast or any meal of the day.

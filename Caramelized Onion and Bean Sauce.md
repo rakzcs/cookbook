@@ -23,5 +23,3 @@ A flavorful sauce with caramelized onions and butter beans. [Recipe Source](http
 5. **Simmer:** Add double cream and simmer for 5 minutes.
 6. **Season:** Add lemon juice, and adjust seasoning.
 7. **Garnish and Serve:** Top with chopped herbs if desired.
-
-Enjoy this rich and savory sauce, perfect for a comforting meal.

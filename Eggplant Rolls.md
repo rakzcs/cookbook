@@ -18,5 +18,3 @@ Delicious and simple eggplant rolls with a creamy and nutty filling. [Recipe Sou
 2. **Prepare Filling:** Mix cream cheese, garlic, walnuts, parsley, cilantro, salt, and pepper in a bowl.
 3. **Assemble Rolls:** Spread the filling on one side of each eggplant slice. Roll them up carefully.
 4. **Serve:** Enjoy these eggplant rolls as a flavorful appetizer or side dish.
-
-A perfect combination of creamy filling and grilled eggplant, these rolls are both tasty and elegant.

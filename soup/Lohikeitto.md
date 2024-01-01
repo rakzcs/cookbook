@@ -22,5 +22,3 @@ A traditional Finnish salmon soup, known for its rich and hearty flavors. [Recip
 2. **Simmer Broth & Vegetables:** Melt butter in a large pot over medium heat. Add garlic & shallots, cook for 1-2 minutes until fragrant. Add potatoes, carrots, salt, and pepper. Pour in stock, bring to a boil, cover, and simmer for 12-16 minutes.
 3. **Add Salmon & Cream:** Reduce heat to medium-low. Add salmon and cream, stir, and simmer uncovered for 5 minutes.
 4. **Add Dill & Serve:** Remove from heat, stir in dill, cover, and let sit for 5-10 minutes. Ladle into bowls, top with pepper, and enjoy!
-
-Savor the taste of this Finnish classic, perfect for a comforting meal.

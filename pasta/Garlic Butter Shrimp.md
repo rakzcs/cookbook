@@ -22,5 +22,3 @@ Source: [Reddit Link](https://www.reddit.com/r/FoodPorn/comments/slwzks/i_made_g
 5. Let the mixture reduce until it reaches your desired consistency. Season with salt to taste.
 6. Add the cooked shrimp back into the pan and mix them in the creamy sauce.
 7. Finally, add a generous amount of finely chopped fresh parsley to the dish.
-
-Enjoy your flavorful Garlic Butter Shrimp!

@@ -30,5 +30,3 @@ A hearty and comforting chowder, perfect for chilly days. [Recipe Source](https:
 3. **Add Dairy:** Whisk half and half with cornstarch. Stir into the soup with butter for the last 30 minutes of cooking.
 4. **Cook Bacon:** In a skillet, cook bacon until crispy. Transfer to a paper towel-lined plate.
 5. **Serve:** Top soup with bacon and garnish with chives.
-
-Enjoy this warm and satisfying chowder on a cold day.

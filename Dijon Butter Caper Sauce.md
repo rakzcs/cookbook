@@ -21,5 +21,3 @@ A rich and flavorful sauce perfect for enhancing meat or seafood dishes. [Recipe
 4. **Make Sauce:** Whisk in mustard and capers. Incorporate remaining butter for creaminess.
 5. **Combine:** Return protein to the pan, warming in the sauce.
 6. **Garnish:** Top with parsley and serve immediately.
-
-Enjoy this versatile Dijon butter caper sauce, which adds a creamy and tangy flavor to any dish.

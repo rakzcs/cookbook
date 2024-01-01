@@ -25,5 +25,3 @@ A creamy and hearty chowder with mushrooms and potatoes. [Recipe Source](https:/
 3. **Simmer:** Add chicken stock, thyme, bay leaves, salt, and pepper. Bring to boil, then simmer.
 4. **Add Potatoes:** Add potatoes, cover, and cook until tender.
 5. **Finish Chowder:** Remove from heat. Stir in cream, milk, and parsley.
-
-Serve this warm and comforting chowder as a delightful meal.

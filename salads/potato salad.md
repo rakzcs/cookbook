@@ -30,5 +30,3 @@ A delicious meat-free Estonian potato salad, ideal for a refreshing side dish. [
 5. **Make Dressing:** In a separate bowl, combine mayonnaise, sour cream, and mustard.
 6. **Season Dressing:** Grate the lemon zest into the dressing, add lemon juice, and a bit of the leftover caper liquid. Chop the dill and add it. Season with salt and pepper to taste.
 7. **Finish Salad:** Mix the dressing with the salad ingredients just before serving for the best flavor.
-
-This potato salad is a fantastic choice for a hearty yet refreshing side dish, combining classic Estonian flavors.

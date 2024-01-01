@@ -27,5 +27,3 @@ A rich and creamy tomato soup enhanced with bacon, perfect for a comforting meal
 5. **Blend:** Remove bay leaves, then blend the soup until smooth.
 6. **Finish with Cream:** Stir in heavy cream. Adjust seasoning.
 7. **Serve:** Garnish with basil and garlic olive oil, if desired.
-
-Enjoy this comforting and hearty soup, perfect for a cozy meal.

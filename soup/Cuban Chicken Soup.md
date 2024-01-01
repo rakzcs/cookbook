@@ -25,5 +25,3 @@ A hearty and comforting Cuban-style chicken soup. Perfect for any day! [Recipe S
 3. Add celery, carrots, and reserved chicken stock. Stir in malanga, sazon, and bouillon cubes. Bring to a boil, then simmer for 25 minutes.
 4. Shred the cooled chicken finely by hand.
 5. Add lime juice, shredded chicken, and angel hair pasta to the pot. Cook for another 15 minutes. Adjust seasoning.
-
-Serve this nourishing soup with a squeeze of lime and enjoy!

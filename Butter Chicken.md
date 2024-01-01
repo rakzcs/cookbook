@@ -38,5 +38,3 @@ A rich and creamy Butter Chicken recipe with tender chicken and flavorful spices
 3. **Sauté Aromatics:** In the same pan, cook onions, garlic, and ginger. Add spices.
 4. **Prepare Sauce:** Add tomatoes, chili powder, and salt. Simmer until thickened. Blend until smooth.
 5. **Combine:** Return sauce to pan. Add cream, sugar, and fenugreek. Add chicken and simmer until cooked.
-
-Enjoy this creamy and flavorful Butter Chicken with rice or naan.

@@ -27,5 +27,3 @@ A luxurious and creamy lobster bisque, perfect for a special occasion. [Recipe S
 2. **Simmer:** Add flour, then pour in stock and wine. Add bay leaf and thyme, and simmer for 30 minutes.
 3. **Blend and Add Cream:** Remove bay leaf and thyme, blend until smooth, then stir in cream and lobster meat.
 4. **Serve:** Heat until warm, garnish with chives, and serve.
-
-Enjoy this rich and decadent lobster bisque, ideal for impressing your guests.

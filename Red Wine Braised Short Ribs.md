@@ -27,4 +27,5 @@ Delight in these rich and tender short ribs braised in a flavorful red wine sauc
 6. **Braise:** Return ribs to pot, cover, and bake for 3 hours.
 7. **Make Sauce:** Remove ribs, strain out solids, reduce sauce, and finish with butter.
 
-Enjoy these decadent short ribs with their rich, wine-infused sauce.
+- Sauce: reduces by half so should be thickened to syrup consistency. If not, simmer on stove for a bit.
+- Sauce excess fat: If the sauce is too fatty for your taste, pour it into a jug and leave for a bit so the fat rises to the surface, then scoop it off.

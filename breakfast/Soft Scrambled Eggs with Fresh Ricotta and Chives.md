@@ -1,5 +1,9 @@
 # Soft Scrambled Eggs with Fresh Ricotta and Chives
 
+*Recipe Source*: [Epicurious](https://www.epicurious.com/recipes/food/views/soft-scrambled-eggs-with-fresh-ricotta-and-chives-241876)
+
+*Instagram Recipe Link*: [Instagram Post](https://www.instagram.com/p/Cq84URIsnaU/)
+
 ## Ingredients:
 - 4 large eggs
 - 1 tablespoon chopped fresh chives
@@ -21,9 +25,3 @@
 2. Spoon scrambled eggs atop toasts.
 3. Sprinkle with more fleur de sel and pepper.
 4. Garnish with whole chives, if desired.
-
-Enjoy your delicious Soft Scrambled Eggs with Fresh Ricotta and Chives!
-
-*Recipe Source*: [Epicurious](https://www.epicurious.com/recipes/food/views/soft-scrambled-eggs-with-fresh-ricotta-and-chives-241876)
-
-*Instagram Recipe Link*: [Instagram Post](https://www.instagram.com/p/Cq84URIsnaU/)

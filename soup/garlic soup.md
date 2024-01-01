@@ -31,5 +31,3 @@ A rich and flavorful soup with a garlic base, perfect for garlic lovers.
 7. **Blend:** Once potatoes are tender, use a hand blender to puree the soup.
 8. **Season:** Taste and adjust seasoning with salt and pepper.
 9. **Serve:** Garnish with croutons, chives, bacon, and cheddar cheese.
-
-Enjoy this creamy and garlic-rich soup, a comforting meal especially in colder weather.

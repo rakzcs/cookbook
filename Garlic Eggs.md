@@ -17,5 +17,3 @@ A simple yet flavorful way to prepare eggs with a garlic and parsley infusion. [
 2. **Fry Garlic:** Heat 1/4 cup olive oil in a pan. Add thinly sliced garlic (4 cloves) and fry until lightly browned.
 3. **Fry Eggs:** Crack eggs into bowls (2 per bowl). Add eggs to the pan, placing garlic slices over them. Fry without moving until golden underneath. Splash hot oil over eggs briefly.
 4. **Serve:** Season eggs with salt and pepper. Add parsley sauce over the eggs.
-
-Enjoy these garlic eggs as a flavorful breakfast or brunch dish.

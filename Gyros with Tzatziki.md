@@ -1,5 +1,7 @@
 # Gyros with Tzatziki
 
+*Recipe Reference*: [Instagram Post](https://www.instagram.com/p/Cs6TvnuodM3/)
+
 ## Marinade:
 - 1 tablespoon dried oregano
 - 1 tablespoon dried thyme
@@ -46,7 +48,3 @@
 5. **Slice Meat**: When the meat is done, let it rest for a couple of minutes. Use a knife to "shave" off the meat. Cover the meat with aluminum foil to keep it warm for serving.
 
 6. **Serve**: Fill the pita bread with tzatziki, gyros meat, slices of tomato, cucumber, red onion, and fries.
-
-Enjoy your homemade Gyros with Tzatziki!
-
-*Recipe Reference*: [Instagram Post](https://www.instagram.com/p/Cs6TvnuodM3/)

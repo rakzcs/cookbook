@@ -32,5 +32,3 @@ A creamy and delicious soup with roasted broccoli and sharp cheddar. [Recipe Sou
 4. Add heavy cream, remaining broccoli, and carrots. Simmer until carrots are soft.
 5. Add cheddar cheese, stirring until melted.
 6. Serve hot with your favorite sides.
-
-Enjoy this hearty and comforting soup, perfect for any occasion.

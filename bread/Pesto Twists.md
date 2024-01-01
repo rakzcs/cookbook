@@ -1,5 +1,7 @@
 # Pesto Twists
 
+**Recipe Reference**: [Samsung Food Recipe](https://app.samsungfood.com/recipes/1070188b1f163137effacc0bd04ada96509)
+
 ## Ingredients
 
 - 1 sheet puff pastry
@@ -30,7 +32,3 @@
 9. **Bake**: Bake the twists in the preheated oven for approximately 15 minutes or until they turn golden and crispy.
 
 10. **Serve**: Once baked, serve the Pesto Twists with additional pesto or your favorite sauce.
-
-Enjoy these delicious Pesto Twists as a snack or appetizer!
-
-**Recipe Reference**: [Samsung Food Recipe](https://app.samsungfood.com/recipes/1070188b1f163137effacc0bd04ada96509)

@@ -19,5 +19,3 @@ Source: [Instagram Link](https://www.instagram.com/p/CmPIbS7Al9c/)
 5. Add the cooked pasta and a bit of pasta water (don’t use all of it) to the pan. Then add the yolks-parmesan mixture.
 6. Mix everything together over low heat for about 2-3 minutes. If you need more sauce, you can add more pasta water and toss until you get a smooth and creamy texture.
 7. Add additional Parmesan cheese if desired, and then serve.
-
-Enjoy your delicious Creamy Mushroom Spaghetti!

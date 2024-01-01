@@ -24,5 +24,3 @@ A hearty and comforting soup that brings all the flavors of lasagna in a bowl. [
 4. **Add Noodles:** Bring to a boil, then simmer with the noodles until tender.
 5. **Finalize Soup:** Stir in basil, season with salt and pepper.
 6. **Serve:** Top each bowl with ricotta, mozzarella, and parmesan as desired.
-
-This soup is best served immediately and is great with garlic bread or a salad.

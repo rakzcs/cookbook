@@ -28,5 +28,3 @@ A comforting and slightly spicy chicken noodle soup, perfect for a hearty meal. 
 3. **Simmer Soup:** Add chicken broth, chicken breasts, and bay leaves. Bring to a boil, then simmer until chicken is cooked.
 4. **Cook Pasta:** Cook pasta separately or in the soup as per package instructions.
 5. **Final Touches:** Shred cooked chicken and return to the pot. Add pasta (if cooked separately), season with thyme, smoked paprika, salt, and pepper. Top with fresh chives.
-
-Enjoy this tasty and slightly spicy chicken noodle soup, a perfect comfort food.

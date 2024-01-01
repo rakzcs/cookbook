@@ -26,5 +26,3 @@ A hearty and flavorful Spanish-inspired soup. [Inspiration from Instagram](https
 3. **Add Tomato Paste and Flour:** Stir until combined.
 4. **Add Potatoes and Broth:** Bring to a boil, then simmer until potatoes are tender.
 5. **Finish with Cream:** Add cream and parsley, cook for 3 minutes.
-
-Serve this rich and satisfying soup with crusty bread for a complete meal.

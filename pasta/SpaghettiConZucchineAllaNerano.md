@@ -23,5 +23,3 @@ Link: [Video](https://www.instagram.com/p/CtJlCWagKmh/)
 6. Add the cooked bucatini noodles to the pan with the browned zucchinis. Add a ladle of pasta water and toss to combine.
 7. Stir in 1 tablespoon of butter, 1/3 cup of grated Pecorino Romano cheese, and a few more turns of cracked black pepper. Add in the chopped parsley.
 8. Plate the dish with fresh torn basil leaves and extra grated Pecorino Romano on top.
-
-Enjoy your Spaghetti con Zucchine alla Nerano!
