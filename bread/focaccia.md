@@ -32,6 +32,6 @@ One day recepie [@_lacebakes_ TikTok](https://www.tiktok.com/@_lacebakes_/video/
 
 5. **Shaping the Dough:** Gently release the dough from the bowl and place it in the tray. Fold the dough like a letter and flip it so the smooth side is up. Cover and let sit for 1.5 - 2.5 hours.
 
-6. **Dimpling and Topping:** Preheat oven to 220C/430F. Drizzle olive oil on the dough and dimple it gently. Sprinkle with flaky sea salt and add toppings.
+6. **Dimpling and Topping:** Preheat oven to 220C. Drizzle olive oil on the dough and dimple it gently. Sprinkle with flaky sea salt and add toppings.
 
-7. **Baking:** Bake for 18-22 minutes at 220C/430F on the lowest rack. Let it cool for a few minutes in the pan, then transfer to a cooling rack.
+7. **Baking:** Bake for 18-22 minutes at 220C on the lowest rack. Let it cool for a few minutes in the pan, then transfer to a cooling rack.
